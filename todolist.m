@@ -4,14 +4,14 @@
 - **Company Name:** M.I.B BTP
 - **Directory:** m_i_b_btp
 - **Address/Contact:** 
-  - Nos branches d'activit�
-  - - R�alisations des ouvrages de g�nie civil.
-  - - conception et ex�cution des plans .
-  - - calcul de structure et des diff�rents devis.
-  - - accompagnement pour obtention du permis de b�tir ...
-  - avec MIB BTP vos r�ves deviennent r�alit� .
+  - Nos branches d'activitéé
+  - - Réalisations des ouvrages de génie civil.
+  - - conception et exécution des plans .
+  - - calcul de structure et des différents devis.
+  - - accompagnement pour obtention du permis de bétir ...
+  - avec MIB BTP vos réves deviennent réalité .
   - 
-  - Page � Entrepreneuriat
+  - Page é Entrepreneuriat
   - 
   - +237 6 52 06 11 17
   - 
